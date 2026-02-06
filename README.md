@@ -1,4 +1,4 @@
-# Hi there, I'm [azusa] 🌸
+# Hi there, I'm azusa 🌸
 
 - 🎮 **Gaming**: Commander at **Azur Lane** & Sensei at **Blue Archive**.
 - 📚 **Interests**: Deeply passionate about **Galgames** and visual novel storytelling.
